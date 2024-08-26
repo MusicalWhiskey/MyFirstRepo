@@ -1,0 +1,1 @@
+I want to be able to troubleshoot and build with the best of em. I want to build a couple of games and bring as much value as i can by streamlining processes where i can. So far this is amazing! Going to make you all proud. Thanks again for the opportunity!
